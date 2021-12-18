@@ -1,2 +1,2 @@
 # individual-learning
-🛑这是一个新人菜鸟学习的仓库！！！
+🛑 hellow,这是一个新人菜鸟学习的仓库！！！
